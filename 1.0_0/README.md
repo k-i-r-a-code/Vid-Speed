@@ -1,1 +1,0 @@
-ye kese likhte h ??
